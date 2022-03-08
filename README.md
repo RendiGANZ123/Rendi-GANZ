@@ -1,2 +1,0 @@
-# Rendi-GANZ
-Baca aja
